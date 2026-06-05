@@ -1,14 +1,14 @@
-# Podia Coupon Code May 2026 – 15% OFF + 30-Day Free Trial
+# Podia Coupon Code June 2026 – 15% OFF + 30-Day Free Trial
 
 Podia coupon code alert! With our exclusive affiliate link, you unlock a **30-day free trial** plus **15% OFF annual plans**, saving **up to $168 in your first year**.
 
 Podia lets creators sell **online courses, digital downloads, coaching, memberships, and email marketing** from one clean dashboard. Over **150,000 creators** trust Podia to run their online business without technical headaches.
 
-All deals below are **verified and working as of May 2026**.
+All deals below are **verified and working as of June 2026**.
 
 ---
 
-## 🔥 Active Podia Coupon Codes & Deals (May 2026)
+## 🔥 Active Podia Coupon Codes & Deals (June 2026)
 
 ### ✅ 15% OFF Podia Annual Plans – Best Long-Term Savings
 
